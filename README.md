@@ -1,6 +1,6 @@
-### 👋 Hi, and welcome to my profile, I'm Esteban from [Embroker](https://www.embroker.com)
+### 👋 Hi, and welcome to my profile, I'm Esteban
 
-- 📫 Reach to me by mail at esteban.camargo@embroker.com
+- 📫 Reach to me by mail at escamargorodriguez@gmail.com
 - ⚡ I love to climb and hike around the world
 - 🌍 Currently living in Colombia
 
